@@ -1,0 +1,1 @@
+# koshikawa-shinya-intern2026
